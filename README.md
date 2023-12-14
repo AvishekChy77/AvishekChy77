@@ -19,7 +19,7 @@
 
 - 📫 How to reach me **avishekchowdhury71@gmail.com**
 
-- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1ZieFX-qy0__FOepgQkchR1rBBAQ4eW4p/view?usp=sharing)
+- 📄 Know about my experiences [My Resume](https://drive.google.com/file/d/1qnJi8nE9CRqaektCa3HzD4LJ3jhkWUVg/view?usp=sharing)
 
 - ⚡ Fun fact **I love hiking & often travel solo**
 
