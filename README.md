@@ -1,4 +1,4 @@
-![Profile banner](images/GithubBanner.png)
+![Profile banner](images/cover.png)
 </br>
 
 <h3 align="left">📈Current stats</h3>
